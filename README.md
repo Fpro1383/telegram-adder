@@ -1,12 +1,10 @@
-# telegram-adder
+# telegram-adder demo
 Telegram-tools-trial
 
-# Telegram-tools
+download demo in link
 
 ![a](https://user-images.githubusercontent.com/65822463/183484114-55a24c12-0e0a-4b74-a50c-9853c1f717cf.jpg)
 
-
-price : 60 $ and with support
 and free updates
 
 how to buy : tell me telegram : @Fpro_Hacker
