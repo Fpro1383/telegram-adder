@@ -7,7 +7,7 @@ download demo in link
 
 and free updates
 
-how to buy : tell me telegram : @Fpro_Hacker
+how to buy or use demo : tell me telegram : @Fpro_Hacker
 
 
 It has the following features:
